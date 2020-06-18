@@ -1,1 +1,1 @@
-# World-Is-Our-Canvas-part-1
+# TheWorldIsOurCanvasPart1
